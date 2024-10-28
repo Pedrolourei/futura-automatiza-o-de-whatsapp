@@ -1,0 +1,1 @@
+# futura-automatiza-o-de-whatsapp
